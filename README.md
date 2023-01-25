@@ -10,5 +10,5 @@ Web Site Photo!
 ![image](https://user-images.githubusercontent.com/74312970/214634825-88c24dc9-9079-4d4e-8786-4b31a43c4145.png)
 
 ------------
-[Discord](https://discord.gg/2WKrmQrrjP)
-[İnstagram](https://www.instagram.com/furkangrns59/)
+-[Discord](https://discord.gg/2WKrmQrrjP)
+-[İnstagram](https://www.instagram.com/furkangrns59/)
